@@ -1,0 +1,1 @@
+# de-tribble-autom-tico
